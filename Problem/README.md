@@ -1,3 +1,6 @@
+<img width="230" alt="hey_blue" src="https://user-images.githubusercontent.com/5999993/199480141-b35e7236-710c-44d0-86bb-a34ca6f7fcdb.png"/>
+	
+
 The <b>Hey, Blue!</b> initiative facilitates moments of meaningful connection between police officers and members of their community by offering intentional opportunities for individuals to meet and share positive experiences. 
 
 <b>Program Name: </b>
